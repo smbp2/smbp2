@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @smbp2
+- 🌱 I’m currently learning Electronics and Computer Engineering
+- 📫 How to reach me, you don't.
